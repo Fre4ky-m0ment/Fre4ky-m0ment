@@ -1,4 +1,4 @@
-![image alt](https://github.com/Fre4ky-m0ment/Fre4ky-m0ment/blob/main/thanos%20__%20squid%20game%202%20@ramenkaaa.jpeg?raw=true) 
+![image alt](https://github.com/Fre4ky-m0ment/Fre4ky-m0ment/blob/main/Untitled%20Project(2).jpg?raw=true) 
 
 ꔫ
 
