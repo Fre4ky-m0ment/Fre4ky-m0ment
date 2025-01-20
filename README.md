@@ -20,4 +20,9 @@
 
 ༄˖°ʚଓ˚no, you're NOT allowed to copy or take inspo anything on my page, things in my links and skins all of a sudden. at the least ask, but i'll probably say no.୭.⁺₊✧
 
+₊˚ପ If you ever come in my life i'll never stop loving you !! ꒱ؘ࿐ ࿔*:
+
+⊱˚₊‧Ty for reading! hope you have a nice day/night! ˚⊹♡
+
 ꔫ
+
